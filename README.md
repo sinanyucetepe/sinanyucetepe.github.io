@@ -1,0 +1,1 @@
+# sinanyucetepe.github.io
